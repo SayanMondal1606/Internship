@@ -1,0 +1,1 @@
+Ron was born on 12-09-1992 and he was admitted to school 15-12-1999.
